@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sabyasachi.mondal8322@gmail.com**
 
-- 📄 Know about my experiences [I am new to this and a student still now.](I am new to this and a student still now.)
+- 📄 [I am new to this and a student still now.]
 
 - ⚡ Fun fact **I love to play cricket all day**
 
